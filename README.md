@@ -55,6 +55,13 @@ No workshop or decoration classes
 Delivery shipping (RM 10 per 1km distance)
 No refunds and returns
 
+Benefits;
+5 year warranty
+Proper cleaning tips
+Detailed cleaning guide
+Free bed frame made from material of your choice
+
+
 Promotions:
 [1 year annivesary] All mattresses receive a 40% discount
 
