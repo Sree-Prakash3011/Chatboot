@@ -45,7 +45,6 @@ Oak wood
 Walnut wood
 Galvanized Square Steel
 
-
 Ordering process:
 Specify size of bed (accept 1 to 3)
 Once mattress is purchased, specify which material to be used as bed frame.
